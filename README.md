@@ -1,1 +1,0 @@
-# mishquam.github.io
